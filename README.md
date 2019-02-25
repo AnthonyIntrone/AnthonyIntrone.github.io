@@ -1,1 +1,1 @@
-# Personal Website for Anthony C Introne
+# Personal Website for Anthony C. Introne
